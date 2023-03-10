@@ -1,1 +1,3 @@
-# Cincinnati-Website-Design
+# Cincinnati Website Design
+Websites created from scratch require a fairly detailed understanding of HTML coding, but you can easily create a website by using a free hosting service like Weebly, Wix, WordPress, or Google Sites. [Cincinnati Website Design](https://fiveriversmarketing.com/website-design-services/) tend to be much easier for first-time designers to use than HTML.
+Create your website using any of our templates. You can also mix and match, or start from scratch. On the Canva homepage search bar, type “website.” Click on Website from the results. Browse the available templates. To use one, click to open it in the editor to start designing. Change the text, photos, and colors.
